@@ -5,3 +5,11 @@ alteração no readme para descrever melhor meu sistema
 continuação das aulas de git agora com sincronização local e remota
 
 algum conteudo novo aqui
+
+
+
+
+fljghsaçhvslnjbthasçevha
+d\zfkj\sdnvbfujs\d~pfuszñpe
+a\çksljcdnçasanduap~va~piu 
+lsldkkhfvaçdfvhbçasduvdp0
